@@ -24,4 +24,5 @@
 <img width="101" height="57" alt="image" src="https://github.com/user-attachments/assets/016342a1-3495-4cd3-adae-fb59e86ddae9" />
      
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[atabook](https://delmuffin22.atabook.org/)  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [strawpage](https://d3lmuff1n22.straw.page/)
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [ru telegram channel](https://t.me/del_draw)
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ[ru telegram channel](https://t.me/del_draw)
