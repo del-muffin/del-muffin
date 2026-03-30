@@ -1,16 +1,27 @@
-## Hi there 👋
 
-<!--
-**del-muffin/del-muffin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">
+<img width="97" height="57" alt="image" src="https://github.com/user-attachments/assets/3d3c0f51-c4dd-4106-aaa9-c86a38cfaac4" />
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+======  ☁️☁️☁️☁️☁️☁️☁️☁️☁️☁️☁️   =======
+
+<p align="center">
+<img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/8c5c922a-df40-4cec-9863-f4382a493d67" />
+
+
+<p align="center">$\small\textcolor{#fffff}{\textsf{KILL ME PLS HEUEUEHHAAHAHAHAHHH}}$
+<p align="center">$\small\textcolor{#fffff}{\textsf{17 y/o}}$
+     
+<p align="center">$\small\textcolor{#FFFFF}{\textsf{int and c+h, but i can leave in a bad mood (dni)}}$
+
+
+
+<p align="center">
+======  ☁️☁️☁️☁️☁️☁️☁️☁️☁️☁️☁️   =======
+
+<p align="center">
+<img width="101" height="57" alt="image" src="https://github.com/user-attachments/assets/016342a1-3495-4cd3-adae-fb59e86ddae9" />
+     
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[atabook](https://delmuffin22.atabook.org/)  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [strawpage](https://d3lmuff1n22.straw.page/)
+
