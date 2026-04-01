@@ -26,3 +26,11 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[atabook](https://delmuffin22.atabook.org/)  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [strawpage](https://d3lmuff1n22.straw.page/)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ[ru telegram channel](https://t.me/del_draw)
+
+<p align="center">
+======  ☁️☁️☁️☁️☁️☁️☁️☁️☁️☁️☁️   =======
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=oc2q8d1e79jccja2y3krvgfb5&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=true&mode=light">
+  </a>
+</p>
