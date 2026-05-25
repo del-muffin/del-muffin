@@ -4,10 +4,10 @@
 
 
 <p align="center">
-======  ☁️☁️☁️☁️☁️☁️☁️☁️☁️☁️☁️   =======
+======  🫧🫧🫧🫧🫧🫧🫧🫧🫧🫧🫧🫧🫧🫧   =======
 
 <p align="center">
-<img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/8c5c922a-df40-4cec-9863-f4382a493d67" />
+<img width="500" height="500" alt="image" src="https://comicstud.io/c/bovujnatal.png" />
 
 
 <p align="center">$\small\textcolor{#fffff}{\textsf{KILL ME PLS HEUEUEHHAAHAHAHAHHH}}$
@@ -18,7 +18,7 @@
 
 
 <p align="center">
-======  ☁️☁️☁️☁️☁️☁️☁️☁️☁️☁️☁️   =======
+======  🫧🫧🫧🫧🫧🫧🫧🫧🫧🫧🫧🫧🫧🫧   =======
 
 <p align="center">
 <img width="101" height="57" alt="image" src="https://github.com/user-attachments/assets/016342a1-3495-4cd3-adae-fb59e86ddae9" />
