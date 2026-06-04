@@ -1,36 +1,54 @@
-
-<p align="center">
-<img width="97" height="57" alt="image" src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTG-X4_ruB-ke3Irn4IXqiGZiRJg0a8Y_GuHQ&s" />
+<div align="center">
 
 
-<p align="center">
-======  🫧🫧🫧🫧🫧🫧🫧🫧🫧🫧🫧🫧🫧🫧   =======
+<div align="center">
 
-<p align="center">
-<img width="500" height="500" alt="image" src="https://comicstud.io/c/bovujnatal.png" />
+![](https://komarev.com/ghpvc/?username=del-muffin&label=WHO_AM_I_??????&color=551606)
 
 
-<p align="center">$\small\textcolor{#fffff}{\textsf{bulb >(*)}}$
-<p align="center">$\small\textcolor{#fffff}{\textsf{17 y/o}}$
+<div align="center">
+
+   $\color{#ff0000}{\text{. . . . . . .  ┈─ · ┈ 𓆩 ✦ 𓆪 ┈ · ─┈  . . . . . . .}}$
+
+
+<div align="center">
+
+   $\color{#ed2939}{\text{Del Muffin | Del | Muff ... (￣o￣) . z Z}}$
+   
+   <div align="center">
+        
+   $\color{#ed2939}{\text{melanholic-choleric}}$
+
+<div align="center">
      
-<p align="center">$\small\textcolor{#FFFFF}{\textsf{int and c+h, but i can leave in a bad mood (dni)}}$
+ $\color{#ed2939}{\text{17 Y.O}}$
+ 
+<div align="center">
+<img width="735" height="490" alt="1ac530c797c92c6063412775402dc3a2" src="https://github.com/user-attachments/assets/35e13de6-dade-4fa1-a9f4-2612248f9f3d" />
+
+<div align="center">
+
+   $\color{#ff0000}{\text{. . . . . . .  ┈─ · ┈ 𓆩 ✦ 𓆪 ┈ · ─┈  . . . . . . .}}$
 
 
 
-<p align="center">
-======  🫧🫧🫧🫧🫧🫧🫧🫧🫧🫧🫧🫧🫧🫧   =======
-
-<p align="center">
-<img width="101" height="57" alt="image" src="https://www.thenautilusmaldives.com/wp-content/uploads/2025/10/TNM-Manta-Rays-Medium.jpg" />
+<div align="center">
+<img width="37" height="27" alt="image" src="https://github.com/user-attachments/assets/3e9e3640-453d-485f-b2db-9fd128362655" />
      
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[atabook](https://delmuffin22.atabook.org/)  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [strawpage](https://d3lmuff1n22.straw.page/)
+<div align="center">
+     
+$\color{#ed2939}{\text{૮ ⸝⸝⸝⸝ ა}}$
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ[ru telegram channel](https://t.me/del_draw)
 
-<p align="center">
-======  🫧🫧🫧🫧🫧🫧🫧🫧🫧🫧🫧🫧🫧🫧   =======
-<p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=oc2q8d1e79jccja2y3krvgfb5&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=true&mode=light">
-  </a>
-</p>
+   <div align="center">
+
+   $\color{#ff0000}{\text{DNI; DARKSHIPPER, PROSHIPPERS, RUSPHOBIC AND UKRPHOBIC, POLICY}}$
+
+<div align="center">
+
+   $\color{#ff0000}{\text{✦}}$
+
+   [**ATABOOK!**](https://delmuffin22.atabook.org/) [**DNI BASIC!**](https://dni-criteria.carrd.co) [**RU TGC!**](https://t.me/del_draw)
+
+
+     
