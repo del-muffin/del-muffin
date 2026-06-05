@@ -17,7 +17,7 @@
    
    <div align="center">
         
-   $\color{#ed2939}{\text{melanholic-choleric}}$
+   $\color{#ed2939}{\text{melanholic-choleric . INFP}}$
 
 <div align="center">
      
