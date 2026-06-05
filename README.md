@@ -48,7 +48,7 @@ $\color{#ed2939}{\text{૮ ⸝⸝⸝⸝ ა}}$
 
    $\color{#ff0000}{\text{✦}}$
 
-   [**ATABOOK!**](https://delmuffin22.atabook.org/) | [**DNI BASIC!**](https://dni-criteria.carrd.co) | [**RU TGC!**](https://t.me/del_draw) | [**SOCIALS!**](https://guns.lol/del_muffin)
+  $\color{#ff0000}{\text{♡}}$ [**ATABOOK!**](https://delmuffin22.atabook.org/) | [**DNI BASIC!**](https://dni-criteria.carrd.co) | [**RU TGC!**](https://t.me/del_draw) | [**SOCIALS!**](https://guns.lol/del_muffin) $\color{#ff0000}{\text{♡}}$
 
 
      
