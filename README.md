@@ -42,7 +42,7 @@ $\color{#ed2939}{\text{૮ ⸝⸝⸝⸝ ა}}$
 
    <div align="center">
 
-   $\color{#ff0000}{\text{DNI; DARKSHIPPER, PROSHIPPERS, RUSPHOBIC AND UKRPHOBIC, POLICY, NEOPRONOUNS (sorry.. idk how to use it) }}$
+   $\color{#ff0000}{\text{DNI; DARKSHIPPER, PROSHIPPERS, RUSPHOBIC AND UKRPHOBIC, POLICY, PEOPLE WITH NEOPRONOUNS (sorry.. idk how to use it) }}$
 
 <div align="center">
 
