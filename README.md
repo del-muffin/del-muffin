@@ -53,9 +53,9 @@ $\color{#99AABB}{\textsf{Better better better better better better, oh.. " . . .
 **$\color{#99AABB}{\textsf{BYU (BEFORE YOU INERACT)!!!!!! :: }}$**
 <div align="centre">
 
-|| I'm not one to understand everything. I'm a bit slow-witted and all that. Yeah, I make jokes too, but if you made a joke I didn't get, feel free to spank her (like: You're so stupid/j) or try to explain it to me.
-I currently suffer from hyperactivity, attention deficit disorder, and memory issues. I have a really hard time switching to a faster pace to speed up and get things done.
-I also don't understand what you're talking about... Please explain it to me sometimes. ||
+|| I'm not the kind of person who understands everything possible. I'm a bit dense and all that. Yes, I joke too, but if you made a joke that I didn't get, feel free to tonteg it (e.g., "You're so stupid/just kidding") or try to explain the point of the joke to me.
+I currently suffer from hyperactivity, attention deficit, and memory issues. It's very difficult for me to switch to a fast pace to speed up and do what needs to be done.
+I also can't understand what you're talking about... Please explain sometimes. ||
 
 <div align="left">
     
