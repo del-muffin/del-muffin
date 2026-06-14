@@ -60,7 +60,7 @@ I also can't understand what you're talking about... Please explain sometimes. |
 <div align="left">
     
 **$\color{#99AABB}{\textsf{DNI (DON'T NOT INERACT)!!!!!! :: }}$
-[basic](https://dni-criteria.carrd.co), $\color{#99AABB}{\textsf{HATERS THE BEATLLES, POLICY, RUSPHOBIC  AND  UKRPHOBOC,  SUPPORT  NAZISM, HOTEL HAZBIN/VIVZIPOP/HELLUVA BOSS, NEOPRONOUNS}}$**
+[basic](https://dni-criteria.carrd.co), $\color{#99AABB}{\textsf{HATERS THE BEATLLES, POLICY, RUSPHOBIC  AND  UKRPHOBOC,  SUPPORT  NAZISM, HOTEL HAZBIN/VIVZIPOP/HELLUVA BOSS, NEOPRNС}}$**
 
 <div align="left centre">
 <img widht="36" height="27" alt="Tumblr_l_107412599852247" src="https://github.com/user-attachments/assets/609b2ac5-b2e9-483c-8f39-2409b3225c74" />
