@@ -80,8 +80,8 @@ I also don't understand what you're talking about... Please explain it to me som
  **$\color{#99AABB}{\textsf{my music list!!!!:}}$ [straw list](https://musiczzzz22342.straw.page)**
 
 <div align="centre">
-<img src="https://i.postimg.cc/g2qpjWK9/Tumblr-l-2350923785220687.gif"width="900px"   /> ──────────
-
+<img src="https://i.postimg.cc/g2qpjWK9/Tumblr-l-2350923785220687.gif"width="900px"   />
 <div align="left centre">
     
-[SOCIAL!](https://guns.lol/del_muffin) | [RU TGC!](https://t.me/del_draw) | [ATABOOK!](https://delmuffin22.atabook.org/) 
+[SOCIAL!](https://guns.lol/del_muffin) | [RU TGC!](https://t.me/del_draw) | [ATABOOK!](https://delmuffin22.atabook.org/)  ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ ㅤㅤㅤㅤㅤ
