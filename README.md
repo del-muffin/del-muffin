@@ -74,10 +74,10 @@ I also don't understand what you're talking about... Please explain it to me som
 <div align="right">
 <img widht="208" height="35" alt="Tumblr_l_107266649045700" src="https://github.com/user-attachments/assets/24fc35cd-b93e-4fa5-a9ef-00f805748792" />
 
-**$\color{#99AABB}{\textsf{my fandom list!!!!:}}$ [straw list]**
+**$\color{#99AABB}{\textsf{my fandom list!!!!:}}$ [straw list](https://fandomzzzz22342.straw.page)**
        <div align="right">
 
- **$\color{#99AABB}{\textsf{my music list!!!!:}}$ [straw list]**
+ **$\color{#99AABB}{\textsf{my music list!!!!:}}$ [straw list](https://musiczzzz22342.straw.page)**
 
 <div align="centre">
 <img src="https://i.postimg.cc/g2qpjWK9/Tumblr-l-2350923785220687.gif"width="900px"   /> ──────────
