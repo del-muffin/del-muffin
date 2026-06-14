@@ -1,54 +1,18 @@
-<div align="center">
-
-
-<div align="center">
-
-![](https://komarev.com/ghpvc/?username=del-muffin&label=bag_TF_up_-_bbno$&color=551606)
-
+<img widht="300" height="200" alt="Tumblr_l_107673502175878" src="https://github.com/user-attachments/assets/1616a737-3984-4458-8af8-2ad3555998f4" />
 
 <div align="center">
-
-   $\color{#ff0000}{\text{. . . . . . .  ┈─ · ┈ 𓆩 ✦ 𓆪 ┈ · ─┈  . . . . . . .}}$
-
+━━━━➳༻❀✿❀༺➳━━━━
+    
+<div align="center">
+꒰ ⟡ ꒱  <img width="500" height="382" alt="Young John!" src="https://github.com/user-attachments/assets/487b5abe-9631-486e-bb59-b8a904ded626" /> ꒰ ⟡ ꒱ 
 
 <div align="center">
-
-   $\color{#ed2939}{\text{Del Muffin | Del | Muff ... (￣o￣) . z Z}}$
-   
-   <div align="center">
-        
-   $\color{#ed2939}{\text{melanholic-choleric . INFP}}$
+━━━━➳༻❀✿❀༺➳━━━━
 
 <div align="center">
-     
- $\color{#ed2939}{\text{17 Y.O}}$
- 
-<div align="center">
-<img width="735" height="490" alt="1ac530c797c92c6063412775402dc3a2" src="https://github.com/user-attachments/assets/35e13de6-dade-4fa1-a9f4-2612248f9f3d" />
+   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 <div align="center">
+<img width="30" height="30" alt="BEATLES CARTOON" src="https://github.com/user-attachments/assets/a6d662df-b516-4549-bcf7-4e970990e303" /> 
 
-   $\color{#ff0000}{\text{. . . . . . .  ┈─ · ┈ 𓆩 ✦ 𓆪 ┈ · ─┈  . . . . . . .}}$
-
-
-
-<div align="center">
-<img width="37" height="27" alt="image" src="https://github.com/user-attachments/assets/3e9e3640-453d-485f-b2db-9fd128362655" />
-     
-<div align="center">
-     
-$\color{#ed2939}{\text{૮ ⸝⸝⸝⸝ ა}}$
-
-
-   <div align="center">
-
-   $\color{#ff0000}{\text{DNI; DARKSHIPPER, PROSHIPPERS, RUSPHOBIC AND UKRPHOBIC, POLICY, PEOPLE WITH NEOPRONOUNS (sorry.. idk how to use it) }}$
-
-<div align="center">
-
-   $\color{#ff0000}{\text{✦}}$
-
-  $\color{#ff0000}{\text{♡}}$ [**ATABOOK!**](https://delmuffin22.atabook.org/) | [**DNI BASIC!**](https://dni-criteria.carrd.co) | [**RU TGC!**](https://t.me/del_draw) | [**SOCIALS!**](https://guns.lol/del_muffin) $\color{#ff0000}{\text{♡}}$
-
-
-     
+WIP
