@@ -16,11 +16,11 @@
 
 <img alt="Hits" src="https://hits.sh/github.com/friendlyspiderr.svg?style=plastic&label=beetle&extraCount=100000000&color=292929&labelColor=292929&logo=%F0%9F%95%B8%EF%B8%8F"/></a>
 
-**✯ $\color{#99AABB}{\textsf{Del Muffin | Del | Muff }}$ ✯**
+**✯ $\color{#99AABB}{\textsf{DEL MUFFIN | DEL | MUFF }}$ ✯**
 
 <div align="center">
     
-$\color{#99AABB}{\textsf{melancholic-choleric | INFP }}$ || <img width="37" height="27" alt="image" src="https://github.com/user-attachments/assets/3e9e3640-453d-485f-b2db-9fd128362655" />
+$\color{#99AABB}{\textsf{MELANCHOLIC-CHOLERIC | INFP }}$ || <img width="37" height="27" alt="image" src="https://github.com/user-attachments/assets/3e9e3640-453d-485f-b2db-9fd128362655" />
 <div align="center">
     
 $\color{#99AABB}{\textsf{17 Y.O}}$
@@ -60,7 +60,7 @@ I also can't understand what you're talking about... Please explain sometimes. |
 <div align="left">
     
 **$\color{#99AABB}{\textsf{DNI (DON'T NOT INERACT)!!!!!! :: }}$
-[basic](https://dni-criteria.carrd.co) , $\color{#99AABB}{\textsf{haters The Beatles, policy, rusphobic and ukrphobic, support nazism. . }}$**
+[basic](https://dni-criteria.carrd.co) , $\color{#99AABB}{\textsf{HATERS THE BEATLLES, POLICY, RUSPHOBIC AND UKRPHOBOC, SUPPORT NAZISM. . }}$**
 
 <div align="left centre">
 <img widht="36" height="27" alt="Tumblr_l_107412599852247" src="https://github.com/user-attachments/assets/609b2ac5-b2e9-483c-8f39-2409b3225c74" />
