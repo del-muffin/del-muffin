@@ -20,7 +20,10 @@
 
 <div align="center">
     
-$\color{#99AABB}{\textsf{melancholic-choleric | INFP }}$
+$\color{#99AABB}{\textsf{melancholic-choleric | INFP }}$ || <img width="37" height="27" alt="image" src="https://github.com/user-attachments/assets/3e9e3640-453d-485f-b2db-9fd128362655" />
+<div align="center">
+    
+$\color{#99AABB}{\textsf{17 Y.O}}$
 
 <div align="right">
 
@@ -57,4 +60,21 @@ I also don't understand what you're talking about... Please explain it to me som
 <div align="left">
     
 **$\color{#99AABB}{\textsf{DNI (DON'T NOT INERACT)!!!!!! :: }}$
-[basic](https://dni-criteria.carrd.co) , $\color{#99AABB}{\textsf{haters The Beatles, policy, rusphobic and ukrphobic, support nazism. . etc.}}$**
+[basic](https://dni-criteria.carrd.co) , $\color{#99AABB}{\textsf{haters The Beatles, policy, rusphobic and ukrphobic, support nazism. . }}$**
+
+<div align="left centre">
+<img widht="36" height="27" alt="Tumblr_l_107412599852247" src="https://github.com/user-attachments/assets/609b2ac5-b2e9-483c-8f39-2409b3225c74" />
+
+<div align="centre">   
+<img width="568" height="320" alt="901916262883007157" src="https://github.com/user-attachments/assets/34aca1aa-78d3-4eaa-a62c-1c6d77687116" />
+
+
+
+
+<div align="right">
+<img widht="208" height="35" alt="Tumblr_l_107266649045700" src="https://github.com/user-attachments/assets/24fc35cd-b93e-4fa5-a9ef-00f805748792" />
+
+**$\color{#99AABB}{\textsf{my fandom list!!!!:}}$ [straw list]**
+<div align="right">
+
+$\color{#99AABB}{\textsf{my music list!!!!:}}$ [straw list]
