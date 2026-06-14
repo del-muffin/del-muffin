@@ -66,7 +66,7 @@ I also don't understand what you're talking about... Please explain it to me som
 <img widht="36" height="27" alt="Tumblr_l_107412599852247" src="https://github.com/user-attachments/assets/609b2ac5-b2e9-483c-8f39-2409b3225c74" />
 
 <div align="centre">   
-<img width="568" height="320" alt="901916262883007157" src="https://github.com/user-attachments/assets/34aca1aa-78d3-4eaa-a62c-1c6d77687116" />
+•❀• ── <img width="568" height="320" alt="901916262883007157" src="https://github.com/user-attachments/assets/34aca1aa-78d3-4eaa-a62c-1c6d77687116" /> ── •❀•
 
 
 
@@ -75,6 +75,13 @@ I also don't understand what you're talking about... Please explain it to me som
 <img widht="208" height="35" alt="Tumblr_l_107266649045700" src="https://github.com/user-attachments/assets/24fc35cd-b93e-4fa5-a9ef-00f805748792" />
 
 **$\color{#99AABB}{\textsf{my fandom list!!!!:}}$ [straw list]**
-<div align="right">
+       <div align="right">
 
-$\color{#99AABB}{\textsf{my music list!!!!:}}$ [straw list]
+ **$\color{#99AABB}{\textsf{my music list!!!!:}}$ [straw list]**
+
+<div align="centre">
+<img src="https://i.postimg.cc/g2qpjWK9/Tumblr-l-2350923785220687.gif"width="900px"   /> ──────────
+
+<div align="left centre">
+    
+[SOCIAL!](https://guns.lol/del_muffin) | [RU TGC!](https://t.me/del_draw) | [ATABOOK!](https://delmuffin22.atabook.org/) 
