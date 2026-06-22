@@ -50,7 +50,7 @@ $\color{#99AABB}{\textsf{Better better better better better better, oh.. " . . .
 
 <div align="centre">
 
-**$\color{#99AABB}{\textsf{BYU (BEFORE YOU INERACT)!!!!!! :: }}$**
+**$\color{#99AABB}{\textsf{BYI (BEFORE YOU INERACT)!!!!!! :: }}$**
 <div align="centre">
 
 || I'm not the kind of person who understands everything possible. I'm a bit dense and all that. Yes, I joke too, but if you made a joke that I didn't get, feel free to tonteg it (e.g., "You're so stupid/j") or try to explain the point of the joke to me.
