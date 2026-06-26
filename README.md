@@ -79,6 +79,9 @@ I also can't understand what you're talking about... Please explain sometimes. |
 
  **$\color{#99AABB}{\textsf{MY MUSIC LIST!!! :}}$ [straw list](https://musiczzzz22342.straw.page)**
 
+ **$\color{#99AABB}{\textsf{PLS WATCH THIS (STATUES PT)!!! :}}$ [rentry](https://rentry.org/delmuffin_statues )**
+ 
+
 <div align="centre">
 <img src="https://i.postimg.cc/g2qpjWK9/Tumblr-l-2350923785220687.gif"width="900px"   />
 <div align="left centre">
