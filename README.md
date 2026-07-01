@@ -75,7 +75,6 @@ I also can't understand what you're talking about... Please explain sometimes. |
 <img widht="208" height="35" alt="Tumblr_l_107266649045700" src="https://github.com/user-attachments/assets/24fc35cd-b93e-4fa5-a9ef-00f805748792" />
 
 **$\color{#99AABB}{\textsf{MY FANDOM LIST!!!!! :}}$ [straw list](https://fandomzzzz22342.straw.page)**
-       <div align="right">
 
  **$\color{#99AABB}{\textsf{MY MUSIC LIST!!! :}}$ [straw list](https://musiczzzz22342.straw.page)**
 
@@ -84,6 +83,10 @@ I also can't understand what you're talking about... Please explain sometimes. |
 
 <div align="centre">
 <img src="https://i.postimg.cc/g2qpjWK9/Tumblr-l-2350923785220687.gif"width="900px"   />
-<div align="left centre">
     
 [SOCIAL!](https://guns.lol/del_muffin) | [RU TGC!](https://t.me/del_draw) | [ATABOOK!](https://delmuffin22.atabook.org/) | [STEAM!](https://steamcommunity.com/id/del_muuuuffiin/) ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+
+<div align="centre">
+    
+$\color{#99AABB}{\textsf{BTW ITS ME :DDD -->}}$ 
+    <img idth="276" height="348" alt="pony-town-john lemon _SIGN ATA_Paul kssr-dance move 1-toy348-6x" src="https://github.com/user-attachments/assets/1792f50c-5bb3-49d9-a77a-bd4ac1569c61" />ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
