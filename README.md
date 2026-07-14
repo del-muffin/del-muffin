@@ -84,7 +84,7 @@ I also can't understand what you're talking about... Please explain sometimes. |
 <div align="centre">
 <img src="https://i.postimg.cc/g2qpjWK9/Tumblr-l-2350923785220687.gif"width="900px"   />
     
-[SOCIAL!](https://guns.lol/del_muffin) | [RU TGC!](https://t.me/del_draw) | [ATABOOK!](https://delmuffin22.atabook.org/) | [STEAM!](https://steamcommunity.com/id/del_muuuuffiin/) ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+[SOCIAL!](https://guns.lol/del_muffin) | [RU TGC!](https://telegram.me/del_draw) | [ATABOOK!](https://delmuffin22.atabook.org/) | [STEAM!](https://steamcommunity.com/id/del_muuuuffiin/) ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 <div align="centre">
     
