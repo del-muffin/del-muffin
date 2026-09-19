@@ -26,5 +26,7 @@ $$ \color{}{\Huge{\textsf{{{\color{#b0b0b0} melancholic-choleric}} }}} $$
 <img widt="99" height="56" alt="Tumblr_l_389079487876113" src="https://github.com/user-attachments/assets/cb314f00-2b4c-4444-a3e3-5746e7b7611e" /> <img widt="99" height="56" alt="Tumblr_l_578247234655080" src="https://github.com/user-attachments/assets/e2353456-2ebb-46f3-8cc1-32ce799df9b0" /> <img widt="99" height="56" alt="Tumblr_l_389100192619883" src="https://github.com/user-attachments/assets/158d289c-1330-4794-ae94-6986a9bfd6e9" />
 
   <p align="center">
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=oc2q8d1e79jccja2y3krvgfb5&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false&mode=light)](https://github.com/kittinan/spotify-github-profile)
-
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=oc2q8d1e79jccja2y3krvgfb5&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=true&hide_remaster=false&bar_color=53b14f&bar_color_cover=false&mode=light">
+  </a>
+</p>
