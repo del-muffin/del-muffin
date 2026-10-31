@@ -21,6 +21,7 @@ $$ \color{}{\Huge{\textsf{{{\color{#b0b0b0} melancholic-choleric}} }}} $$
 <img width="37" height="27" alt="image" src="https://github.com/user-attachments/assets/3e9e3640-453d-485f-b2db-9fd128362655" />
 <img widt="2048" height="258" alt="Tumblr_l_607603996747753" src="https://github.com/user-attachments/assets/ada51107-91b3-4317-97d7-4716daf42dd0" />
 
+<p align="center">
 <a href="https://steamcommunity.com/id/del_muuuuffiin/">steam</a> | <a href="https://delmuffin22.straw.page/">straw</a>
   <p align="center"> 
 <img widt="99" height="56" alt="Tumblr_l_389079487876113" src="https://github.com/user-attachments/assets/cb314f00-2b4c-4444-a3e3-5746e7b7611e" /> <img widt="99" height="56" alt="Tumblr_l_578247234655080" src="https://github.com/user-attachments/assets/e2353456-2ebb-46f3-8cc1-32ce799df9b0" /> <img widt="99" height="56" alt="Tumblr_l_389100192619883" src="https://github.com/user-attachments/assets/158d289c-1330-4794-ae94-6986a9bfd6e9" />
